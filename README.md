@@ -1,3 +1,3 @@
 # About me
 
-- 😄 Pronouns: She/Her
+- Pronouns: She/Her
